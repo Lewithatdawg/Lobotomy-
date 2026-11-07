@@ -1,4 +1,5 @@
 # Lobotomy-
 -
-*We're all gonna die at somepoint*
-HELLO I'm DANNY !!
+Hello I'm danny! here's some things you might wanna know about me!
+* I'm a GUY, Ftm
+* I block freely, but
