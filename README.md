@@ -11,3 +11,5 @@ my two main fave  lapfox aliases are emoticon and OMNICRON COMPLEX 🤤🤤🤤 
 —
 
 uhhh anyways...
+
+Idk why I self RP (IT IS SATIRE, UNDERSTAND THE WORD. SATIRE. ALL OF IT IS SATIRE (even if it's jokes about myself, atleast a person thought i ment if i dont do it ill hurt myself..LIKE HELLO?!?!)) but it's for the fun of it and I like seeing people who are entertained into the slop I make. one man show babyy
