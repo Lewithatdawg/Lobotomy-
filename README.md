@@ -20,4 +20,4 @@ I had to redo this thingy because some people misunderstood my last one (which I
 
 nerdyy nerd nerd danny 🤣🤣🤣
 
-uhmmm I honestly don't know what to put here.
+uhmmm I honestly don't know what to put her..
