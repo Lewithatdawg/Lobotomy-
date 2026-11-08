@@ -7,5 +7,5 @@ Hello I'm danny! here's some things you might wanna know about me!
 * I like macrons (or macaroons). veeeeryyyy yummy, very mouth watering😋
 * I like lapfox and mcbushpig... I like tyler the creator (BURGER BURGER BURGER 🤣🤣)
 my two main fave  lapfox aliases are emoticon and OMNICRON COMPLEX 🤤🤤🤤 oh kiss me omicron complex 
--
+—
 uhhh anyways...
