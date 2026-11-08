@@ -1,6 +1,9 @@
 LOOKATME-
 - adan I luv you😳😳😳😳😳 holds your hand tightlly 
 
+FEEL FREE to int! I don't mind talking to anyone! I like talking to others a bunch and it makes me happy to see people who I talk to have fun around me :) 
+it gives me a reason to also wake up in the morning and hop on Ponytown after having an exhausting day : D
+
 Hello I'm danny! here's some things you might wanna know about me!
 * I'm a GUY, Ftm
 * 5/12 🎈 
