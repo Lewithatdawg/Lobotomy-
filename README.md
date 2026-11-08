@@ -28,3 +28,11 @@ uhmmm I honestly don't know what to put here..
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3166a332-efe3-45df-a605-26df799c9d2c" />
 
 again I don't know what to put here.
+# oc ref and evil man I guess.
+
+<img width="300" height="414" alt="image" src="https://github.com/user-attachments/assets/963167a5-4f00-4b9d-a3e3-e7f179455c53" /> lewi and evilman wow <img width="3014" height="1718" alt="image" src="https://github.com/user-attachments/assets/82e3054b-3a86-473b-9761-323287a65d57" />
+
+
+
+the way who you can tell who's my favorite (it's evil man)
+my art is ugly😭😭😭😭😭😭😭😭😭😭kms😭😭😭😭😭😭
