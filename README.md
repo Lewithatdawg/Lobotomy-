@@ -1,15 +1,23 @@
 Lobotomy-
--
+- adan I luv you😳😳😳😳😳 holds your hand tightlly 
+
 Hello I'm danny! here's some things you might wanna know about me!
 * I'm a GUY, Ftm
+* 5/12 🎈 
+* 15 years old YO
 * I block freely, but I don't do it permanently sometimes I will ( depending on who you are ( this part  is *heavily targeted*)
 * I perfer to be called danny :3 but if u don't know my name then just call me lewi I guess
-* I like macrons (or macaroons). veeeeryyyy yummy, very mouth watering😋
+* I like macrons (or macaroons..)! veeeeryyyy yummy, very mouth watering😋
 * I like lapfox and mcbushpig... I like tyler the creator (BURGER BURGER BURGER 🤣🤣)
-my two main fave  lapfox aliases are emoticon and OMNICRON COMPLEX 🤤🤤🤤 oh kiss me omicron complex 
-
-—
+— my two main fave lapfox aliases are emoticon and OMNICRON COMPLEX 🤤🤤🤤 oh kiss me omicron complex —
 
 uhhh anyways...
 
-Idk why I self RP (IT IS SATIRE, UNDERSTAND THE WORD. SATIRE. ALL OF IT IS SATIRE (even if it's jokes about myself, atleast a person thought i ment if i dont do it ill hurt myself..LIKE HELLO?!?!)) but it's for the fun of it and I like seeing people who are entertained into the slop I make. one man show babyy
+Idk why I self RP (IT IS SATIRE, UNDERSTAND THE WORD. SATIRE. ALL OF IT IS SATIRE (even if it's jokes about myself, atleast a person thought i ment if i dont do it ill hurt myself..LIKE HELLO?!?!)) but it's for the fun of it and I like seeing people who are entertained into the slop I make. one man show babyy!! 
+ But aside from that I get triggered by some stuff like sexual assault and self harm, just sometimes not all the times, I may joke my own situation though! 
+
+I had to redo this thingy because some people misunderstood my last one (which I honestly understand because I was tired when I made itt) I don't mind taking advice from people since it can help me (it depends though...) 
+
+nerdyy nerd nerd danny 🤣🤣🤣
+
+uhmmm I honestly don't know what to put here.
