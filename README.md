@@ -20,4 +20,5 @@ I had to redo this thingy because some people misunderstood my last one (which I
 
 nerdyy nerd nerd danny 🤣🤣🤣
 
-uhmmm I honestly don't know what to put her..
+uhmmm I honestly don't know what to put here..
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3166a332-efe3-45df-a605-26df799c9d2c" />
