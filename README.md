@@ -1,11 +1,9 @@
 LOOKATME-
-- adan I luv you😳😳😳😳😳 holds your hand tightlly 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2rlsamx5cnjbcohwigydrcsrq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+- adan I luv you😳😳😳😳😳 holds your hand tightlly
+- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2rlsamx5cnjbcohwigydrcsrq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 FEEL FREE to int! I don't mind talking to anyone! I like talking to others a bunch and it makes me happy to see people who I talk to have fun around me :) 
-it gives me a reason to also wake up in the morning and hop on Ponytown after having an exhausting day : D
-
-$${\color{#b6cedd}\text{uhm testing I guess }$$
+it gives me a reason to also wake up in the morning and hop on Ponytown after having an exhausting day :D 
 
 Hello I'm danny! here's some things you might wanna know about me!
 * I'm a GUY, Ftm
