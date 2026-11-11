@@ -22,6 +22,8 @@ Idk why I self RP (IT IS SATIRE, UNDERSTAND THE WORD. SATIRE. ALL OF IT IS SATIR
 
 I had to redo this thingy because some people misunderstood my last one (which I honestly understand because I was tired when I made itt) I don't mind taking advice from people since it can help me (it depends though...) 
 
+$\color{yellow}{\text{hi im verity}}$
+
 nerdyy nerd nerd danny 🤣🤣🤣
 
 uhmmm I honestly don't know what to put here..
