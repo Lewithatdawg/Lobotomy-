@@ -5,12 +5,14 @@ LOOKATME-
 FEEL FREE to int! I don't mind talking to anyone! I like talking to others a bunch and it makes me happy to see people who I talk to have fun around me :) 
 it gives me a reason to also wake up in the morning and hop on Ponytown after having an exhausting day : D
 
+$${\color{#b6cedd}\text{uhm testing I guess }$$
+
 Hello I'm danny! here's some things you might wanna know about me!
 * I'm a GUY, Ftm
 * 5/12 🎈 
 * 15 years old YO
 * I block freely, but I don't do it permanently sometimes I will ( depending on who you are ( this part  is *heavily targeted*)
-* I perfer to be called danny :3 but if u don't know my name then just call me lewi I guess
+* I perfer to be clled danny :3 but if u don't know my name then just call me lewi I guess
 * I like macrons (or macaroons..)! veeeeryyyy yummy, very mouth watering😋
 * I like lapfox and mcbushpig... I like tyler the creator (BURGER BURGER BURGER 🤣🤣)
 — my two main fave lapfox aliases are emoticon and OMNICRON COMPLEX 🤤🤤🤤 oh kiss me omicron complex —
