@@ -5,6 +5,10 @@ LOOKATME-
 FEEL FREE to int! I don't mind talking to anyone! I like talking to others a bunch and it makes me happy to see people who I talk to have fun around me :) 
 it gives me a reason to also wake up in the morning and hop on Ponytown after having an exhausting day :D 
 
+<img width="196" height="324" alt="image" src="https://github.com/user-attachments/assets/a73b94c8-c282-4dab-9fd8-a6c850c0177b" />
+look at my bbg 🤤
+
+
 Hello I'm danny! here's some things you might wanna know about me!
 * I'm a GUY, Ftm
 * 5/12 🎈 
@@ -30,7 +34,7 @@ uhmmm I honestly don't know what to put here..
 again I don't know what to put here.
 # lewi ref and evil man I guess.
 
-<img width="300" height="414" alt="image" src="https://github.com/user-attachments/assets/963167a5-4f00-4b9d-a3e3-e7f179455c53" /> lewi and evilman wow <img width="2328" height="1887" alt="image" src="https://github.com/user-attachments/assets/5d475ab7-a442-4f73-a08d-f4cd182f67cd" />
+<img width="200" height="314" alt="image" src="https://github.com/user-attachments/assets/963167a5-4f00-4b9d-a3e3-e7f179455c53" /> lewi and evilman wow <img width="238" height="187" alt="image" src="https://github.com/user-attachments/assets/5d475ab7-a442-4f73-a08d-f4cd182f67cd" />
 
 
 
